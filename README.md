@@ -4,7 +4,7 @@ Perkenalkan nama saya **Riska Septiany**.<br>
  
 Saya Programming Enthusiast
  
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/gilang-adhan/)ku ya.
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/Riska-septiany/)ku ya.
  
 ### Github Statistic
 <p align="left">
